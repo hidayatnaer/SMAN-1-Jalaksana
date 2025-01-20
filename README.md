@@ -1,1 +1,1 @@
-# SMANJA-Promosi
+# SMAN 1 JALAKSANA
